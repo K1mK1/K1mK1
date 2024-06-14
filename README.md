@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @K1mK1
+- 👀 I’m interested in Scripting in Luau
+- 🌱 I’m currently learning Game Development
+- 💞️ I’m looking to collaborate on Devs
+- 📫 How to reach me; Discord: K1mK1#6724
+- 😄 Pronouns: MAN
+- ⚡ Fun fact: N/A
